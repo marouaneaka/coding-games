@@ -21,6 +21,6 @@ Here are some of the exciting projects you'll find in this repository:
 
 ## Connect with Me
 
-- 💼 [LinkedIn]([https://www.linkedin.com/in/marouaneaka/](https://www.linkedin.com/in/marouane-belbella)https://www.linkedin.com/in/marouane-belbella)
+- 💼 [LinkedIn](https://www.linkedin.com/in/marouane-belbella)
 
 Thanks for dropping by! ✨
